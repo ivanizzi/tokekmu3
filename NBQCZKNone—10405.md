@@ -1,0 +1,1083 @@
+NBQCZKNone—10405
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-12  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+美股场外衍生品监管收紧服务商，监管收紧大宗商品场外衍生品交易
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E5%85%A8%E5%A4%A9%E4%B8%89%E6%9C%9F%E8%AE%A1%E5%88%92
+
+开源缓存故障排查工具箱，定位缓存异常根源
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E9%91%AB%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B!
+
+GitHub 热榜 AI 智能体项目一日暴涨上万 Star
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%87%91%E6%B4%8B6%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+掌上政务视频帮办服务上线远程协助群众办理各项业务
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%7C-%E5%BD%A9%C2%B7%E5%BC%80%E5%A5%96%E6%95%B0%E6%8D%AE
+
+制造业出口订单回暖企业扩产招工
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E9%82%A62%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5%3A%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB!
+
+美股份额改革谈判服务商，IMF 份额改革调整新兴经济体权重
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%87%91%E6%B5%B7%E5%B2%B82%7C%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86
+
+企业技术创新成果发布会举行发布多款自研新技术新产品成果物件
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%A9%E4%BD%902%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B!
+
+印度大米受非洲需求拉动，国内米价攀升至一年高位水平
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%A9%E4%BD%902%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+暑期消费调研报告出炉文旅消费增长亮眼数据
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%BE%89%E8%BE%BE%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88!
+
+北非小麦进口国转向南美，采购阿根廷巴西小麦货源
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%89%E4%BF%A115%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+巴拉圭柑橘库存下降，南美鲜果出口报价继续抬升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C!
+
+企业校企共建实验室揭牌 联合培养技术技能型人才
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E6%82%A62%C2%B7%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86
+
+多语种免费翻译平台对外开放 助力对外经贸文化交流
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91
+
+欧盟碳边境税开始实施，发展中国家农产品出口成本抬升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E7%8B%AE%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86
+
+开源合同文档对比仓库，识别两份法律文件差异
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%80%9F%E7%9B%88%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C%E7%BD%91%E5%9D%80
+
+应急救援装备更新换代提升一线救援处置能力
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%A9%E4%BD%902%C2%B7%E5%A8%B1%E4%B9%90%7Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%81%A9%E4%BD%902%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
+
+欧盟橄榄油新季产量小幅回升，进口采购需求随之有所回落
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%A7%E9%BE%99%C2%B7%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1
+
+政务服务延时办事窗口增设方便上班族下班办事
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A22%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+开源向量检索加速工具箱，提升知识库查询速度
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%86%A0%E5%9B%BD%E9%99%85%E4%BB%A3%E7%90%86%E6%B3%A8%E5%86%8C
+
+开源前端打包 AI 依赖树可视化插件开放源码
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E6%82%A6%C2%B7%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E7%BD%91
+
+城市共享单车电子围栏全覆盖 规范停车秩序
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E7%9B%9B%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
+
+科特迪瓦咖啡库存走高，西非咖啡出口价格承压下行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E6%B3%B0%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+全球传感器出口需求旺盛，工业汽车电子拉动传感器进口量
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E7%BE%8E3%E4%BB%A3%E7%90%86%E6%B3%A8%E5%86%8C
+
+开源企业级 AI 日志分析平台登上趋势榜
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%A7%E9%BE%99%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E6%96%B9%7C%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3
+
+美股一带一路农业项目咨询服务商业务，多边机构联合融资
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%BC%97%E8%85%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+美股认证抬升出口成本服务商，各类合规认证抬升农产品出口成本
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A7%E4%BC%97%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88!
+
+城市共享单车投放新规引导有序运营
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E8%B5%B0%E5%8A%BF%E5%9B%BE%E5%BD%A9%E7%BB%8F
+
+农产品质量安全抽检工作覆盖秋收季
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%89%E4%BF%A115%E5%B9%B3%E5%8F%B0%7C%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+开源一键导入 GitHub Issues 至本地管理工具
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E7%A8%B3%E8%B5%9A%E8%AE%A1%E5%88%92%E7%BD%91%E7%AB%99
+
+山地光伏电站生态修复完工电站周边植被恢复生长
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9B%9B%E7%85%8Capp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3
+
+开源 AI 音乐生成仓库，文本产出原创音频素材
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E5%9B%BE%E7%99%BB%E5%BD%95
+
+全球跨境私募募集服务发展，帮助私募基金面向多国募集资金
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E8%81%94%7C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86
+
+防汛指挥视频会商系统升级多部门远程协同调度
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E8%81%94%C2%B7%E5%A8%B1%E4%B9%90%E6%80%8E%E4%B9%88%E6%A0%B7
+
+美股大型涉农平台合规咨询服务商，监管规则不断完善
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%95%BF%E5%BE%81%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+美股农业大棚钢材贸易商遭遇摩擦，贸易保护主义抬头
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%918A%7C%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86
+
+农产品电商产地仓建成投入使用集中打包发货外销各地
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C5%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E7%BD%91%E5%9D%80
+
+莫桑比克玉米人道主义援助持续开展，保障受灾民众口粮需求
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A2%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%8F%8C%E8%B5%A2QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%8F%8C%E8%B5%A2%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80(%E5%AE%98%E7%AB%99)!
+
+多地推进城市公共厕所升级改造，提升城市公厕卫生服务水平
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E4%BA%8B%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5%3A%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB!
+
+轨道交通新线路开通打通城市通勤堵点
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%81%94%E8%B5%A2%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C!
+
+城市绿化养护升级打造四季观景廊道
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E8%81%94%C2%B7%E5%A8%B1%E4%B9%90%7C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88!
+
+开源供应链培训资料下载，赋能开发者自查风险
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E6%B3%B0%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+开源多模态知识库框架，图文音视频一站式检索方案
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%95%BF%E5%BE%81%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%BD%91%E5%9D%80
+
+开源异地备份监控看板，查看灾备任务执行状态
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E4%BA%8B%E5%B9%B3%E5%8F%B0%7C%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+美股农业科研仪器服务商，仪器仪表支撑农业科研检测需求
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%9D%E5%8D%9A%C2%B7%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86
+
+AI 智能质检系统落地工厂车间 产品合格率稳步提升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%85%88%E9%94%8B%C2%B7%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86
+
+全球生物燃料原油比价变化，改变谷物油籽工业消费量
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E9%91%AB%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
+
+开源 React AI 图表自动生成组件库开源
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7!
+
+AI 语音克隆开源项目，生成音色高度相似音频
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9E%81%E6%82%A6%C2%B7%E5%A8%B1%E4%B9%90%E6%89%8B%E6%9C%BA%E7%89%88
+
+OpenAI 内测 Codex 持久模式，可跨会话长时间自主工作
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E8%80%80%C2%B7%E5%A8%B1%E4%B9%90%E4%B8%8B%E8%BD%BD
+
+美股跨境报关服务商营收提升，贸易便利化改革带来机会
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E8%AE%A1%E5%88%92%E7%BD%91%E9%A1%B5%E7%89%88
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%AE%9D5%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%AE%9D5%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+开源美食菜谱图像仓库，产出菜品效果图食谱方案
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91V8%E5%93%88%E5%B8%8C%E7%BD%91%E5%9D%80
+
+美股酒类韧性分化服务商，果酒烈酒优于大众酒类产品表现
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%AA%E9%98%B32%E6%8B%9B%E5%95%86
+
+千兆光纤覆盖全部行政村 缩小城乡数字鸿沟
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%AE%9D5%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85!
+
+开源项目活跃度预测看板，预判仓库未来发展走向
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%822%E6%80%BB%E4%BB%A3%E7%90%86
+
+国内中小学心理健康教育强化，完善学生心理疏导帮扶机制
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%96%E7%BA%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+欧盟谷物进口同比回落，内部粮食自给率维持高位Agricultur...
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%82%B2%E4%B8%96%E9%BB%84%E6%9C%9D%E7%BD%91%E5%9D%80
+
+开源本地音乐 AI 混音剪辑批量网页端登上趋势榜单
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E7%BD%91%E5%9D%80%E6%9F%A5%E8%AF%A2
+
+跨省市技能证书互认便利劳动者流动
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E9%80%94cai%E7%A5%A8%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+国产新型生物有机肥扩产生产，改良耕地土壤培肥地力减少化肥
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E4%B8%89%E5%AE%9A%E5%A4%A7%E5%BA%95
+
+城市文创周边产品进驻高铁站方便旅客选购伴手礼
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%AA%E5%8F%A4%C2%B7%E5%A8%B1%E4%B9%90app%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80
+
+开源跨平台 AI 图片生成任务队列管理桌面客户端
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%8D%9A2%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%8D%9A2%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+国内多地建设畜禽粪污处理设施，减轻养殖带来环境污染
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E7%8B%AE%7C%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1
+
+开源跨端大屏 AI 实时数据流拖拽生成可视化项目
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91V8%E5%93%88%E5%B8%8C%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E4%B8%8B%E8%BD%BD
+
+全球菜籽葵花籽贸易活跃，小宗油料跨境贸易规模扩大
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E8%BF%90%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+基层卫生院康复理疗科室升级完工增设康复理疗设备床位
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%82%B2%E4%B8%96%C2%B7%E9%BB%84%E6%9C%9D%E5%B9%B3%E5%8F%B0%7C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9!
+
+青少年科创夏令营优秀作品展出
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E7%9B%9B%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+国产工业仿真软件服务上千制造工厂
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%822%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98!%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE!
+
+校园食堂推出营养套餐 均衡学生膳食营养
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BC%80%E4%B8%B0%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+哈萨克斯坦大麦库存累积，中亚饲料谷物出口竞争加剧
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%99%BE%E8%BE%BE%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86
+
+美股电竞配套食品服务商，海外电竞产业带动周边外销
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BC%80%E4%B8%B0%C2%B7%E5%A8%B1%E4%B9%90%E6%89%8B%E6%9C%BA%E7%89%88
+
+开源 AI 绘画生成仓库，本地运行图像生成模型
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E5%86%A0%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+全球利差变化驱动资本流动，新兴市场资本波动加大
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9B%B7%E7%A5%9E%E6%B3%A8%E5%86%8C%7C%E5%B9%B3%E5%8F%B0
+
+科特迪瓦可可库存走低，全球可可价格维持高位震荡
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E5%BC%80%E5%A5%96%E5%85%A8%E9%83%A8%E5%8F%B7%E7%A0%81
+
+全球跨境奢侈品咨询服务，奢侈品品牌出海适配当地市场监管
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E6%B6%A6%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+美股票据盘活中小应收服务商，供应链票据盘活中小外贸应收账款
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E8%80%80%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+城市停车智能缴费系统上线 车主缴费操作更加便捷
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E6%82%A6%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5%3A%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB!
+
+开源 Go 语言 ORM 框架迎来 v2 重大更新
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9B%9B%E7%85%8C%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+校园劳动实践基地启用 培养学生劳动能力
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%E6%89%8B%E6%9C%BA%E7%89%88
+
+工业废气在线监测系统升级实时监控废气排放浓度
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%823%E6%89%8B%E6%9C%BA%E7%89%88
+
+全球初创企业估值回调，一级市场向二级市场靠拢估值
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%99%BE%E4%BA%8B3%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+绿色出行骑行挑战赛收官公布优秀参赛选手获奖完整名单
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%B8%813%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85!
+
+开源企业级低代码 AI 流程自动化平台登上榜
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%824%E7%BD%91%E9%A1%B5%E7%89%88
+
+国内多地试点智慧社区建设，提升社区治理便民服务水平
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%89%E4%BF%A115%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91
+
+灵活就业档案托管便民服务全面开通
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%824%E4%B8%BB%E7%AE%A1
+
+城市口袋绿道二期工程开工 休闲空间继续拓展
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%98%9F%E5%BA%A7%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE!
+
+城市空气质量优良天数同比上涨 蓝天保卫战成果稳固
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%86%A0%E5%9B%BD%E9%99%85%E7%99%BB%E5%BD%95
+
+南水北调东线冰期输水启动，输水工程持续至次年二月浙江日报
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%BE%89%E8%BE%BE%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E8%BE%89%E8%BE%BE%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+农村特色养殖丰收产品热销线上平台
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9A%87%E9%A9%AC%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0
+
+开源异地备份监控看板，查看灾备任务执行状态
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%80%80%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0
+
+美股油气股随油价冲高，中东局势扰动能源板块行情
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%9A%E4%B8%96%C2%B7%E4%BD%93%E8%82%B2%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+生活物资供应企业加大备货量保障旺季居民物资购买需求
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%AB%98%E5%BE%B7%C2%B7%E5%A8%B1%E4%B9%90%E9%A6%96%E9%A1%B5
+
+新西兰乳制品拍卖再度走弱，奶农经营压力持续加大
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A22%E5%AE%98%E7%BD%91%E6%B3%A8%E5%86%8C
+
+开源 API 流量监控仓库，观测后端接口访问流量
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C6%E4%BB%A3%E7%90%86%E6%B3%A8%E5%86%8C
+
+美股精品咖啡溢价走高服务商，精品豆现货溢价持续走高运行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%96%9C%E4%B9%90%E5%9C%A8%E7%BA%BF%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B!
+
+文旅惠民消费券第二轮投放 带动文旅消费
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91
+
+开源电子书籍章节生成仓库，产出完整图书正文
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%99%BE%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+教育部出台中小学幼儿园学段衔接指导方案
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E6%B6%A62%E5%AE%98%E7%BD%91%E6%B3%A8%E5%86%8C
+
+美国蔓越莓库存累积，北美浆果出口价格承压下行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%85%89%E8%BE%89%E4%BB%A3%E7%90%86%E6%B3%A8%E5%86%8C
+
+工厂智能排产系统上线优化生产计划提高产能
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%82%B2%E4%B8%96%C2%B7%E9%BB%84%E6%9C%9D%7C%E5%82%B2%E4%B8%96%C2%B7%E9%BB%84%E6%9C%9D%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90!
+
+社区便民理发点开设 低价服务老年居民
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%7C%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97!
+
+乌干达芝麻库存累积，油料出口价格承压下行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E7%9B%9B%7C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C
+
+美股农业保险服务商跨境合作，分担多国农业灾害风险
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%B8%81cai%E7%A5%A8%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95
+
+GitHub 趋势周报：多智能体协作项目持续出圈
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%96%E7%BA%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97!
+
+莫桑比克棉花产业复苏，非洲棉花对外输出增加
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E5%92%8C%E5%9F%8E%E4%B8%BB%E7%AE%A1
+
+国际海洋生物多样性大会召开，商议海洋生物多样性保护举措
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E5%A4%A7%E6%A6%82%E7%8E%87%E6%96%B9%E6%B3%95
+
+开源高性能 JSON 数据库迎来版本更新
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%90%B3%E7%90%85%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E7%90%B3%E7%90%85%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E7%90%B3%E7%90%85%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81!
+
+城市积水点排水改造三期工程开工补齐剩余排水短板项目任务
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9B%9B%E7%85%8C%C2%B7%E5%A8%B1%E4%B9%90%E9%9D%A0%E8%B0%B1%E5%90%97
+
+外贸企业海外品牌推广计划启动提升本土品牌海外知名度
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%84%A6%E7%82%B9%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E7%84%A6%E7%82%B9%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A(%E5%AE%98%E7%AB%99)!
+
+开源离线文档 AI 问答长对话记忆 Web 服务开源
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E6%82%A6%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+跨江大桥车流高峰分流方案出台减少桥面拥堵排队等待时长
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AC%A7%E7%9A%87%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+全球房地产美元债风险暴露，海外投资者规避地产相关债
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%80%9F%E7%9B%88%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95
+
+农产品电商直播专场走进产地 直播间直达田间地头
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%B8%81cai%E7%A5%A8app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3
+
+全球技术性贸易壁垒升级，合规成本成为出口重要竞争门槛
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BC%80%E4%B8%B0%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%BC%80%E4%B8%B0%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A(%E5%AE%98%E7%AB%99)!
+
+海洋牧场项目投产 助力蓝色经济稳步前行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%80%9F%E7%9B%88%E6%B3%A8%E5%86%8C%7C%E5%B9%B3%E5%8F%B0
+
+开源迭代看板系统，可视化追踪团队开发周期
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E8%81%94%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0
+
+开源维护者互助社区板块上线，交流仓库运营难题
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%8D%9A2%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86
+
+城市绿道网络持续延伸，串联公园绿地方便群众健身休闲
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%9C%E9%82%A6%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
+
+土壤改良项目稳步推进 耕地质量有效提升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%BC%97%E8%85%BE%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+开源云原生网关 AI 智能爬虫防护流量调度模块上线
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%825%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+多地开展秋冬季森林可燃物清理，降低森林火灾燃烧蔓延风险隐患点
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E5%BC%80%E5%A5%96%E7%BB%93%E6%9E%9C%E8%B5%B0%E5%8A%BF%E5%9B%BE
+
+开源分布式 AI 训练节点性能监控大盘面板开源上线
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%80%80%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+光伏储能一体化示范项目投产实现自发自用余电存储
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%87%91%E6%B5%B7%E5%B2%B82%E7%99%BB%E5%BD%95
+
+开源云原生 AI 模型版本管理流水线工具上线
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%8F%B2%E5%A8%B1%E5%9B%BD%E9%99%85%E4%BB%A3%E7%90%86
+
+商圈智慧收银系统升级提升付款效率
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E5%9B%BEapp%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80
+
+部分城市试点社区食堂建设，方便老年群体日常就餐生活需求
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E4%BA%BF%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD
+
+职业教育校企合作订单班招生开启
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E7%8B%AE%E5%9C%A8%E7%BA%BF%E4%BB%A3%E7%90%86
+
+泰国木薯淀粉开拓拉美市场，工业原料出口版图持续扩大
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%BC%97%E8%85%BE%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C%E7%BD%91%E5%9D%80
+
+开源语音转文字仓库，音频批量生成文稿字幕
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91V8%E5%93%88%E5%B8%8C%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+菲律宾椰子遭遇台风，椰树受损影响后续椰果产出
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E7%8B%AE%C2%B7%E5%A8%B1%E4%B9%90%7C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88!
+
+全球跨境报关报检服务贸易，外贸企业委托第三方完成通关业务
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AC%A7%E9%99%86%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+城市内涝积水实时查询小程序上线市民出行查看积水点位分布
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B1%87%E4%B8%B0%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E7%BD%91%E5%9D%80
+
+全球主权基金行为准则更新，规范主权基金海外投资相关行为
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E5%92%8C%E5%9F%8E%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88!
+
+马来西亚林吉特承压，出口走弱叠加外部流动性收紧
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%916A%C2%B7%E5%A8%B1%E4%B9%90%7Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_6A%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
+
+小微企业信用贷款额度提升审批提速
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BC%80%E4%B8%B0%C2%B7%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95
+
+河湖水质月度监测报告发布多条河段水质指标得到稳步提升改善效果成果展现数据指标
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A22%7C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C
+
+跨境中欧冷链班列首发 生鲜货物直达欧洲
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E6%9C%80%E4%BD%B37%E7%A0%81
+
+城市绿化养护升级打造四季观景廊道
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E5%BC%80%E5%A5%96%E6%95%B0%E6%8D%AE
+
+农村饮水提质工程完工 村民喝上放心水
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80(%E5%AE%98%E7%AB%99)!
+
+美股法律服务相关上市公司平稳，企业并购需求支撑营收
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%7C-%E5%BD%A9%C2%B7%E5%BC%80%E5%A5%96%E7%BD%91
+
+国产新型生物降解地膜示范推广，减少农田地膜残留污染问题
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9B%B7%E7%A5%9Eapp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80
+
+美股粮食海运扰动服务商，港口作业效率受地缘天气影响
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%87%91%E6%B4%8B6%C2%B7%E5%A8%B1%E4%B9%90%7Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E9%87%91%E6%B4%8B6%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
+
+美股关税相关企业股价震荡，贸易政策变动带来经营不确定性
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E9%91%AB%C2%B7%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80
+
+开源分布式 AI 任务调度器开放源代码
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E9%91%AB%C2%B7%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86
+
+美股成品油分销企业业绩分化，区域供需格局影响盈利
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%822%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C!
+
+阿根廷葵花籽库存下降，油脂出口供给有所收紧
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BC%80%E4%B8%B0%E6%B3%A8%E5%86%8C%7C%E5%B9%B3%E5%8F%B0
+
+科普数字展馆线下体验区建成开放市民沉浸式体验科技
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5%3A%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB!
+
+全球关键矿产供应链法案落地，强化关键矿产供给安全保障
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E5%90%91%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+冷链保鲜技术升级延长果蔬供货周期
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%99%BE%E4%BA%8B3%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98!%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE!
+
+开源年度人气投票开启，开发者为心仪仓库投票
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%A9%E4%BD%90%C2%B7%E5%A8%B1%E4%B9%90%E6%80%8E%E4%B9%88%E6%A0%B7
+
+美国核桃库存累积，北美坚果出口价格维持偏弱运行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E9%91%AB%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%99%BE%E8%BE%BE%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+俄罗斯葵花籽进口需求上升，从哈萨克斯坦大量采购
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E4%BA%BA%E5%B7%A5%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6
+
+防汛抢险实战演练成功举行 磨合应急队伍
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86
+
+美股银行缺口填补服务商，非银信贷填补银行农业信贷收缩
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+科特迪瓦可可库存走低，全球可可价格维持高位震荡
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%AF%8C%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E9%91%AB%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%9D%8F%E9%91%AB%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+全球跨境人力资源外包服务，海外用工管理交由第三方机构处理
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9A%87%E9%A9%AC%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+开源旅行攻略图文仓库，产出全套出行游玩资料
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%80%80%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%81%92%E8%80%80QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%81%92%E8%80%80%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0(%E5%AE%98%E7%AB%99)!
+
+美股港口运营企业股价波动，地缘天气扰动粮食海运周转
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B1%87%E4%B8%B0%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD
+
+开源本地音乐 AI 伴奏生成网页端登上榜单
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%824%E5%AE%98%E7%BD%91
+
+科普短视频通过乡村大喇叭广播 科学知识送到家门口
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%918A%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E7%BD%91%E5%9D%80
+
+GitHub 趋势周报：AI 智能体生态持续爆发
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E5%9B%BE%E5%AE%98%E7%BD%91
+
+厄尔尼诺冲击东南亚棕榈油，产区降雨分布严重失衡
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%88%A9%E7%9B%88%C2%B7%E5%A8%B1%E4%B9%90%E9%A6%96%E9%A1%B5
+
+非遗传承人研修培训班开班 培育新一代传统手艺人才
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%87%91%E6%B5%B7%E5%B2%B82%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C!
+
+开源本地 AI 聊天客户端新增插件生态
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%85%89%E8%BE%89%C2%B7%E5%A8%B1%E4%B9%90%7Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%85%89%E8%BE%89%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
+
+两部门发布秋季花粉预报，北京强化致敏花粉防控工作
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C6%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+跨境货运航班加密保障外贸订单交付
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E5%BD%A9%E5%AE%98%E7%BD%91%7C%E5%B9%B3%E5%8F%B0
+
+国产新型海水养殖网箱投入使用，拓展深远海养殖发展空间
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E9%82%A6%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%AF%8C%E9%82%A6%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+开源 React AI 产品落地页拖拽智能生成编辑器上线
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%90%B3%E7%90%85%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97!
+
+全球多边开发银行增资讨论，提升对发展中国家支持力度
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%98%9F%E5%BA%A7%C2%B7%E5%A8%B1%E4%B9%90%E6%89%8B%E6%9C%BA%E7%89%88
+
+缅甸芝麻出口增长，东南亚油料小宗贸易活力十足
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A22%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5%3A%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB!
+
+开源电商客户管理系统，搭建轻量化 CRM 项目
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%97%A8%E5%BE%92%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+河湖增殖放流活动改善水生生物环境
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%93%9D%E5%9B%BE%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E4%B8%8B%E8%BD%BD
+
+美股节日农产礼品服务商，节日礼品海外采购迎来旺季窗口
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BD%A9%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+开源云原生安全扫描新增 AI 漏洞挖掘
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%916A%C2%B7%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80
+
+开源学生作业批改工具，AI 检查学生编码练习
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9B%B7%E7%A5%9E%E5%B9%B3%E5%8F%B0%7C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9!
+
+土耳其通胀居高不下，央行维持高利率抑制物价上涨
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%7C-%E5%BD%A9%C2%B7%E5%AE%98%E7%BD%91%E9%A6%96%E9%80%89
+
+开源微前端 AI 组件懒加载资源调度框架开源上线
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E4%BA%8B%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+国际半导体展会开展，各国展示芯片制造设备前沿新产品
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%8D%9A2%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95
+
+美股仓单服务企业业务扩张，全球仓储供应链需求提升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%90%B3%E7%90%85%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%90%B3%E7%90%85%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90!
+
+开源高性能时序数据 AI 异常趋势聚类检测库更新版本
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%824%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+美股实体企业套保普及服务商，期权工具普及对冲粮价波动
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E4%BA%BF%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85!
+
+乡村特色采摘园迎来丰收季市民入园采摘新鲜果蔬
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AC%A7%E9%99%86%7C%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86
+
+美股户外食品回落服务商，露营降温户外食品回归常态水平
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE!
+
+多地推进城市河道保洁常态化，维持河湖水面干净整洁的状态
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AF%8C%E8%81%94%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86
+
+红色历史文化宣讲进社区为居民讲述红色革命故事
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E6%8A%80%E5%B7%A7%E8%AE%A1%E5%88%92
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A22%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E7%BD%91%E5%9D%80
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90%7Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E4%B9%90%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
+
+水库汛期蓄水科学调度保障下游河道生态流量用水需求
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C6%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+农产品区域公用品牌培育提速 市场产品附加值提升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AC%A7%E7%9A%87%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+城市文创快闪集市落地商圈周末开市吸引市民打卡选购商品
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%918Acai%E7%A5%A8%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3
+
+跨境贸易无纸化单证全覆盖落地
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E8%80%80%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+GitHub 安全实验室披露多款热门开源库漏洞
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%AA%E5%8F%A4%7C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C
+
+开源 Go 语言 CLI 项目 AI 代码片段模板脚手架开源
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80
+
+国产自研芯片量产下线 打破外部供给壁垒
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%B8%813%E5%AE%98%E7%BD%91
+
+巴西木薯库存下降，淀粉出口报价获得一定支撑
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A2%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8F%8C%E8%B5%A2%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+乡村特色采摘园迎来丰收季市民入园采摘新鲜果蔬
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%87%91%E6%B4%8B6%E7%99%BB%E5%BD%95
+
+海洋养殖水质实时监测系统上线远程监控养殖塘水质状况
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BC%8E%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%E7%9B%B4%E5%B1%9E%E5%BE%85%E9%81%87
+
+美股运费风险对冲服务商，航运衍生品交易保持活跃
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90app%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80
+
+线上复诊医保报销服务覆盖县域乡镇基层医疗机构网点范围
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E5%92%8C%E5%9F%8E%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
+
+缅甸大米使用本币跨境结算，降低稻米贸易汇率风险
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E7%9B%9B%C2%B7%E5%A8%B1%E4%B9%90%E9%A6%96%E9%A1%B5
+
+安全生产隐患排查专项行动启动 压紧压实企业主体责任
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80
+
+开源 AI 网页表单自动填充测试脚本工具开放源码
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%86%A0%E5%9B%BD%E9%99%85%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B!
+
+美股海外并购税务咨询企业订单增长，跨境并购监管趋严
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E4%BF%A1%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+开源美食菜谱图像仓库，产出菜品效果图食谱方案
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%AA%E5%8F%A4%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E5%8F%A4%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E5%8F%A4%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81!
+
+美股导航定位企业受益自动驾驶，订单规模持续增长
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%80%9F%E7%9B%88%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85!
+
+全球服务贸易占比提升，数字服务成为主要增长引擎
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90%E9%A6%96%E9%A1%B5
+
+疾控部门科普流行性出血热预防，野外活动做好防鼠以及个人防护
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8F%8C%E8%B5%A22%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8F%8C%E8%B5%A22QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%8F%8C%E8%B5%A22%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0(%E5%AE%98%E7%BD%91)!
+
+美股农产品加工机械企业就近建厂，规避海外贸易壁垒
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%AA%E9%98%B32app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3
+
+美股农业流媒体版权服务商，版权贸易规模不断扩张
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9B%B7%E7%A5%9E%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+国产新一代算力服务器正式对外发布
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81!
+
+开源企业向量检索引擎支持索引后台异步刷新任务
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B1%87%E4%B8%B0%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
+
+美股农业铝制设备企业调整布局，应对海外关税政策变化
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E4%B9%90%E5%AF%8CQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E4%B9%90%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80(%E5%AE%98%E7%AB%99)!
+
+开源多仓库代码 AI 合并冲突辅助解决工具开源
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%80%80%E5%AE%98%E7%BD%91%7C%E5%B9%B3%E5%8F%B0
+
+快递绿色包装覆盖率逐年上涨 践行低碳环保发展理念
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E8%88%AA%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+美股基础设施 REITs 运营企业股价平稳，长期资金偏好基建
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%8D%9A88%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%8D%9A88%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A(%E5%AE%98%E7%BD%91)!
+
+个人贷款新规落地，严禁隐性收费，必须明示综合融资成本中国新闻网
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%85%89%E8%BE%89%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0
+
+开源内网 AI 绘图工作站私有化部署方案
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%82%B2%E4%B8%96%E9%BB%84%E6%9C%9D%E5%AE%98%E6%96%B9%7C%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3
+
+开源内网批量图片 AI 标签聚类生成工具上线
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9B%B7%E7%A5%9E%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E9%9B%B7%E7%A5%9E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1!
+
+山地风电项目运维中心建成保障风电场长期平稳运行发电
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90%E9%A6%96%E9%A1%B5
+
+氢能产业人才培养基地揭牌校企联合培育氢能专业技术人才队伍团队组织
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E6%80%8E%E4%B9%88%E7%8E%A9
+
+白俄罗斯钾肥价格调整，影响全球化肥贸易定价
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%8F%B2%E5%A8%B1%E5%9B%BD%E9%99%85%E6%89%8B%E6%9C%BA%E7%89%88
+
+肯尼亚茶叶出口报价回升，干旱缩减茶叶供给规模
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%82%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88!
+
+氢能产业链配套零部件工厂投产
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E4%B8%89%E4%BD%8D%E6%95%B0%E4%B9%8B%E5%92%8C
+
+全球跨境人力资源服务出海，帮助企业完成海外用工管理
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E5%AE%87%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%9D%8F%E5%AE%87QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%9D%8F%E5%AE%87%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0(%E5%AE%98%E7%BD%91)!
+
+G20 农业部长会议召开，呼吁维护全球农产品贸易畅通
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%AB%98%E5%BE%B7%7C%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1
+
+开源健身动作捕捉仓库，识别用户运动姿态动作
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9B%B7%E7%A5%9E%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%BD%91%E5%9D%80
+
+阿根廷蓝莓库存回落，拉美浆果出口报价有所抬升
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%96%9C%E4%B9%90%E5%9C%A8%E7%BA%BF%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE!
+
+开源试卷批改解析仓库，自动判题附带详细讲解
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1
+
+市域公交一卡通互联互通跨城乘车一卡通行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C3%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97%3A%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C(%E6%81%92%E8%A1%8C3)%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9!
+
+乌干达香蕉病害扩散，政府出台政策扶持香蕉产业恢复
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%99%BE%E8%BE%BE%E7%99%BB%E5%BD%95%7C%E5%B9%B3%E5%8F%B0
+
+城市雨水管网升级改造工程完工 雨水收纳能力增强
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%BC%80%E4%B8%B0%C2%B7%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88
+
+美股指数服务商开发农业相关指数，被动资金配置增加
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B1%87%E4%BC%97%C2%B7%E5%A8%B1%E4%B9%90%7C%E7%BD%91%E5%9D%80
+
+开源团队管理员面板，管控成员 AI 编码权限
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%822%E4%B8%BB%E7%AE%A1
+
+国产新型矿用无人驾驶车辆投入矿区，实现矿区无人运输作业
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%84%8F%E6%98%825app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%84%8F%E6%98%825%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
+
+开源高性能 JSON 数据库迎来版本更新
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%96%E7%BA%AA%E5%B9%B3%E5%8F%B0%7C%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+开源一键导出 GitHub 仓库所有 Wiki 文档备份工具
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B2%B3%E5%86%855%7C%E5%88%86-%E5%BD%A9%E6%89%93%E6%B5%81%E6%B0%B4%E6%8A%80%E5%B7%A7
+
+美股资本流动监测服务商，监测资本防范粮食进口国大进大出
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E6%82%A6%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C
+
+美股受灾农业重建服务商，气候损失损害基金正式运行
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%8F%B2%E5%A8%B1%E5%9B%BD%E9%99%85%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+开源团队周报汇总脚本，收集成员产出团队周报
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%AB%98%E5%BE%B7%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
+
+欧洲葡萄酒产区受热浪冲击，相关产业营收预期下调
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E7%9B%9B%C2%B7%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E7%BD%91
+
+开源多仓库 AI 提交记录贡献热力图可视化工具
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B8%87%E4%BA%8B%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C!%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89!
+
+农贸市场智慧电子秤全覆盖实现交易数据实时上传监管
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%A9%E4%BD%902%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%81%A9%E4%BD%902%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90!
+
+开源 Git 日志分析助手，自然语言解读版本变更
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%98%E7%BD%91-%20%E9%80%9F%E7%9B%88%E5%B9%B3%E5%8F%B0%20%7C%20%E5%88%9B%E5%BB%BA%E6%B3%A8%E5%86%8CID%E8%B4%A6%E5%8F%B7-%E4%BC%9A%E5%91%98%E7%99%BB%E5%BD%95%E4%B8%AD%E5%BF%83%E7%BD%91%E7%AB%99!
+
+AI 农作物产量预测模型助力农户规划
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C3app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3
+
+全球连接器出口受益 AI 算力，服务器产业链拉动连接器需求
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90app%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80
+
+开源 AI 提示词模板库收获数万开发者收藏
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A7%E4%BC%97%C2%B7%E5%A8%B1%E4%B9%90%7C%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97!
+
+开源语音克隆项目优化音色自然程度
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%9D%8F%E5%BD%A9%C2%B7%E5%A8%B1%E4%B9%90%E5%AE%98%E6%96%B9%7C%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3
+
+开源团队管理员面板，管控成员 AI 编码权限
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%7C-%E5%BD%A9%C2%B7%E8%B5%B0%E5%8A%BF%E5%9B%BE%E8%AE%A1%E5%88%92
+
+国内农村移风易俗积分制推广，用积分引导群众践行文明乡风好习惯
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%87%E4%BA%BF%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A5%87%E4%BA%BFQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A5%87%E4%BA%BF%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0(%E5%AE%98%E7%BD%91)!
+
+城市停车收费智能系统上线 缴费更加便捷
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91V8%E5%93%88%E5%B8%8C%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5%3A%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB!
+
+全球资本利得税跨境协调讨论，减少跨境投资税收套利空间
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%9D%E5%8D%9A%C2%B7%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1
+
+地方特色小吃街升级改造完工汇聚各地风味美食小吃
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E7%BB%9F%E8%AE%A1
+
+开源多模态 PDF 问答框架对外开放源码
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D!
+
+乡村 5G 智慧大棚投入使用 远程监控作物生长环境
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%B8%812%E5%A8%B1%E4%B9%90%7C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%B8%812%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%B8%812%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81!
+
+山地光伏电站生态修复完工电站周边植被恢复生长
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%90%E5%86%A0%E5%9B%BD%E9%99%85%E5%AE%98%E7%BD%91%E6%B3%A8%E5%86%8C
+
+线上复诊医保报销服务覆盖县域乡镇基层医疗机构网点范围
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qq%E5%88%86%E5%88%86%C2%B7%E5%BD%A9-%E7%BE%A4
+
+网络清朗专项整治行动开启 大力清理不良互联网信息
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0%E5%B8%81cai%E7%A5%A8%E5%AE%98%E7%BD%91%E6%B3%A8%E5%86%8C
+
+城市新能源充电桩加速布局 车主充电难问题逐步缓解
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%9A%E4%B8%96%C2%B7%E4%BD%93%E8%82%B2%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98!%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE!
+
+乡村书屋数字阅读终端正式启用
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%81%92%E8%A1%8C5%E4%BB%A3%E7%90%86%E6%B3%A8%E5%86%8C
+
+美股农产品加工机械就近建厂咨询服务商，家电海外产能
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B1%87%E4%B8%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
+
+开源离线语音实时翻译网页低延迟方案登上趋势榜单
+
+| 来源：https://www.baidu.com/BAIDU?CL=5&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%BF%90%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E8%BF%90%E8%BE%BE%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95!
